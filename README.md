@@ -8,3 +8,6 @@ Im selling the source code so if you are intrested DM me on telegram
 
 https://t.me/gyrossol
 
+
+Proof of concept:
+https://vimeo.com/996141724?share=copy
