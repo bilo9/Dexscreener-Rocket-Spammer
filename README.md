@@ -10,4 +10,3 @@ https://t.me/gyrossol
 
 
 Proof of concept:
-https://vimeo.com/996141724?share=copy
